@@ -1,6 +1,6 @@
 17吃瓜-百万吃瓜群众信赖的吃瓜网站！
 
-最新国内入口：https://icg23.com
+最新国内入口：https://icg24.com
 
 永久入口  https://818.cool
 
